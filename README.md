@@ -2,6 +2,8 @@ Wspomnienia-z-wakacji
 ======================
 
 <h3>Verona (Werona)</h3>
+
+<img src = 07-06_28.JPG> 
 https://github.com/ASEMBK/Wspomnienia-z-wakacji/blob/master/2011-07-06_28.JPG<br />
 Verona (Werona) - miasto położone w północno-wschodnich Włoszech, w regionie administracyjnym Wenecja Euganejska (Veneto).<br />
 Leży nad rzeką Adygą, u podnóża Alp Weneckich. Jest ośrodkiem handlu i jednym z najbogatszych miast północnych Włoch.<br />
