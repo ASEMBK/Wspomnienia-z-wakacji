@@ -10,3 +10,4 @@ https://github.com/ASEMBK/Wspomnienia-z-wakacji/blob/master/2011-07-09_72.JPG
 
 
 Venice (Wenecja)
+https://github.com/ASEMBK/Wspomnienia-z-wakacji/blob/master/2011-07-21_42.JPG
