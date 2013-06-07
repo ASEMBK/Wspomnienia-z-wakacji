@@ -11,7 +11,7 @@ Leży nad rzeką Adygą, u podnóża Alp Weneckich. Jest ośrodkiem handlu i jed
 Florence (Florencja) - miasto w środkowych Włoszech, nad Arno, u stóp Apenin, stolica Toskanii i prowincji Florencja.<br /> 
 
 <h3>Venice (Wenecja)</h3>
-[Wenwcja i my](https://github.com/ASEMBK/Wspomnienia-z-wakacji/blob/master/2011-07-21_42.JPG?raw=true)<br />
+[Wenecja i my](https://github.com/ASEMBK/Wspomnienia-z-wakacji/blob/master/2011-07-21_42.JPG?raw=true)<br />
 Venice (Wenecja) - miasto i gmina na północy Włoch nad Adriatykiem, stolica regionu Wenecja Euganejska.<br />
 Wenecja to miasto położone na licznych bagnistych wyspach na Morzu Adriatyckim.<br />
 Z tego względu jest to miasto kanałów – w większości transport odbywa się drogą wodną lub pieszo.<br /> 
