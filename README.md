@@ -1,4 +1,4 @@
-Wspomnienia-z-wakacji.
+Wspomnienia-z-wakacji
 ======================
 
 <h3>Verona (Werona)</h3>
